@@ -1,1 +1,1 @@
-# Optimizing-a-Luxury-Clothing-Brand-s-Marketing-Campaign
+# Optimizing-a-Luxury-Clothing-Brands-Marketing-Campaign
